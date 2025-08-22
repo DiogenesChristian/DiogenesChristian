@@ -1,4 +1,4 @@
-# [Diogenes Christian] <img src="https://media.tenor.com/tvAZn_mSo7IAAAAM/kid-goku-peace.gif" width="200px">
+# Diogenes Christian <img src="https://media.tenor.com/tvAZn_mSo7IAAAAM/kid-goku-peace.gif" width="200px">
 
 Eu sou <strong>Diogenes Christian</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
